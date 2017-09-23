@@ -1,3 +1,0 @@
-johan
-stig
-sundström
